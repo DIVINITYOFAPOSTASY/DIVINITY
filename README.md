@@ -1,4 +1,4 @@
-# MORTALDECAY
+# STARDUST PHARMACY
 
 hi. umm idk what to rly put here were not very active but!! were always o2i
 
@@ -8,4 +8,4 @@ https://sunkiller.straw.page
 
 and heres our linktree
 
-https://github.com/MORTALDECAY/MORTLDECAY/blob/main/linktree
+https://github.com/STARDUSTPHARMACY/STARDUSTPHARMACY/blob/main/linktree
